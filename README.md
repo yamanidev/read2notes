@@ -1,0 +1,2 @@
+## About
+A collection of the notes I take from reading books. Here, I write down things I deem interesting and worthy of remembering. These notes are by no means summaries, but to me personally, render the books I read unnecessary, as I have my notes as reference.
